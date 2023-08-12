@@ -7,7 +7,7 @@
 
 - 📫 How to reach me **dazy.shakespeare@gmail.com**
 
-- 📄 I've completed courses from A-Level Ukraine [https://drive.google.com/file/d/1_GBqczuqH52UVitMYaeyNU8uzHfqta3g/view?usp=sharing](https://drive.google.com/file/d/1_GBqczuqH52UVitMYaeyNU8uzHfqta3g/view?usp=sharing)
+- 📄 I've completed courses from A-Level Ukraine [Link](https://drive.google.com/file/d/1_GBqczuqH52UVitMYaeyNU8uzHfqta3g/view?usp=sharing)
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
